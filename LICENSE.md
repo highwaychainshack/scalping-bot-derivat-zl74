@@ -1,4 +1,4 @@
-# 
+# Get the ultimate scalping bot for derivatives with elite scalping bot for derivatives | liquidity-provision + perpetual-trading. Featuring liquidity-provision and
 
 
 
